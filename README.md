@@ -1,4 +1,4 @@
-### From darkness to complexity
+### From darkness to complexity 🖤
 
 <!--
 **LastEnigmas/LastEnigmas** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
